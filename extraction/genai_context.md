@@ -1,0 +1,1 @@
+Okay We are doing an app that use AI to do counseling of couple and mainly after their first child. I have dumped a lot of stuff from reddit compiling story that talk about couple and new born can you extract the most insight concerning their stories ? And give me the title of the most interesting stories :
